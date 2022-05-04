@@ -1,7 +1,7 @@
 <p align="center">
     <img src="https://media.discordapp.net/attachments/965000139922104340/969786351799123978/Capturar.JPG" width="350" title="hover text">
 </p>
-<h1 align="center">Hades | Barber Lounge</h1>
+<h1 align="center">Rosemary´s Studio Tattoo</h1>
 
 <h4 align="center"> 
 	✅  Rosemary´s Studio Tattoo ❤️‍🔥 Concluído 🚀✅
